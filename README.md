@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @CBerenMM
-- 👀 I’m interested in ... your parents
-- 🌱 I’m currently learning ... coding in ithkuil language with brainfuck as the coding language
-- 💞️ I’m looking to collaborate on ... your parents
-- 📫 How to reach me ... 69@coldrail.xmvmaj
+- 👋 Hi, I’m @zstdr5768789ouijlk,nbvgcdth
+- 👀 I’m interested in ... n bgvjygiuoij
+- 🌱 I’m currently learning ... 86756e5yrfgdasxcvcvvbnm
+- 💞️ I’m looking to collaborate on ... lkjhjbn m
+- 📫 How to reach me ... dr6t7ygjhvcxdzsetrdtkuj,
 
 <!---
-CBerenMM/CBerenMM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes. I don't remember asking, though.
+zstdr5768789ouijlk,nbvgcdth/zstdr5768789ouijlk,nbvgcdth is a ✨ hvgufyt78iyouljkjhfgdsesw4e567989 ✨ repository because its `README.md` (arestrdyugihb) appears on your 99878yiguhji profile.
+You can click the zsete46547689 link to take a look at your changes. I don't remember asking, though.
 --->
